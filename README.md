@@ -1,6 +1,6 @@
 Eu sou desempregado
 
 
-![](<img src="https://media1.tenor.com/m/esB7CnrwclYAAAAC/charmed-flynn-rider.gif" alt="a cartoon character with a beard is smiling with his mouth open"/>![image](https://github.com/user-attachments/assets/a01a7d57-5f9c-4caf-b52f-00196ddd1591))
+![](<img src="https://media1.tenor.com/m/e1yVMPJiO_wAAAAC/really-tangled.gif" alt="a close up of a cartoon character &#39;s face with a woman &#39;s hand on it"/>)
 
 
